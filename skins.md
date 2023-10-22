@@ -1,2 +1,8 @@
  # [wilk dt](https://cdn.discordapp.com/attachments/1035667154781085828/1165777095218188348/WWW.osk?ex=65481586&is=6535a086&hm=00dec9e1c086515fae321afca06d7fdbfee5711b96428765c70de2a84ae2f372&)
  ![screenshot248](https://github.com/bloshiowo/skins/assets/68192018/9650cd5d-ea10-4bdd-9ab9-b5aa90125338)
+ # [azerino](https://cdn.discordapp.com/attachments/1035667154781085828/1165777785441230933/azerinoxd.osk?ex=6548162b&is=6535a12b&hm=535f664d3cab9e7adca14bc48c1e0cb553ac67d0bfdbd82b0b13c7f607f2eb56&)
+ ![screenshot250](https://github.com/bloshiowo/skins/assets/68192018/a4cf10e0-8fcc-46f4-a1ae-c4bd5498c879)
+ # [aristia instafade](https://cdn.discordapp.com/attachments/1035667154781085828/1165778037539876864/Aristia_-_instafade.osk?ex=65481667&is=6535a167&hm=79a3fc0e87999ad20721a9faf86069e5256f649d66f0d86f35b243174ed3bd1c&)
+ ![screenshot251](https://github.com/bloshiowo/skins/assets/68192018/87e51a01-37d3-4284-b01d-4cf38b02cb6d)
+ # [bloshi veron](https://cdn.discordapp.com/attachments/1035667154781085828/1165778406500208650/mathi_whypan_Veron_edit.osk?ex=654816bf&is=6535a1bf&hm=6d501b63b06aa8a7bedce50fd42af89ea51758c1f7aca6d53215fd88faaff746&)
+ ![screenshot252](https://github.com/bloshiowo/skins/assets/68192018/b2f40499-df59-4cee-957e-7651b2cef8df)
